@@ -1,1 +1,0 @@
-# nakanakaii.github.io
